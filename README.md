@@ -1,1 +1,2 @@
 # Glow-Plus-Gold-Fairness-Cream
+<a href="https://www.healthcarebeauty.in/shop/glow-plus-gold-fairness-cream">Glow Plus Gold Glutathione Skin Whitening Cream</a> is a Whitening cream made of all the natural ingredients and has zero side effects on your skin. It uses all the natural ingredients like Glutathione Kojic Acid, Arbutin, Vitamin-B3, Vitamin-E, Glycolic Acid, Lactic Acid, Honey, Bee Wax, Mulberry, Bearberry, Liquorice, Calendula, Emblica Extract.
